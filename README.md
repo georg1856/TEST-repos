@@ -6,6 +6,7 @@ NeuroStartUp — динамически развивающийся старта�
 * Низкая цена
 
 **asdasdfsfgsfg**
+asdasdasdskdfksdgkskfgksdfsdf
 
 *Логотип:*
 
